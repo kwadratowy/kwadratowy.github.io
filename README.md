@@ -1,1 +1,0 @@
-# kwadratowy.github.io
